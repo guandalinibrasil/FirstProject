@@ -1,2 +1,3 @@
 # FirstProject
-Primeiros projetos
+Primeiros projetos de Raquel Guandalini. 
+Espero que goste! :)
